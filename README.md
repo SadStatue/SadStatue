@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @SadStatue
 - 👀 I’m interested in conscioussness
-- 🌱 I’m currently learning nohing 
+- 🌱 I’m currently learning nothing 
 - 💞️ I’m looking to collaborate on neuroscience projects
 - 📫 How to reach me (wait to be completed)
 
